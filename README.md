@@ -1,1 +1,1 @@
-# Majic-Imagery#no-problem#no-doubt
+# Majic-Imagery
